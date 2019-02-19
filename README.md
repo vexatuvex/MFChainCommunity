@@ -1,0 +1,1 @@
+- [ ] Craig, please joint this unofficial telegram channel t.me/ModernFinanceChain and tell your investors what’s goin on with MFChain project, people starting to think it’s a scam and report you to police. No comunication since ICO rise a red flag and you’ll lose investors support and I think you don’t wish to be investigated by police.
